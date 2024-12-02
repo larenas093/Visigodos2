@@ -9,3 +9,4 @@ La iglesia de San Pedro de la Nave (Zamora).
 La capilla de San Fructuoso de Montelius en Braga, (Portugal).
 La iglesia de Santa Lucía del Trampal en Alcuéscar, (Cáceres).
 La Iglesia de Santa María de Melque de San Martín de Montalbán (Toledo).
+La Iglesia de Nuestra Señora de Belén de Tomares (Sevilla)
